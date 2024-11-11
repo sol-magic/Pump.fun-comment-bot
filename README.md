@@ -1,5 +1,7 @@
 # Pump.fun-comment-bot
 
+https://github.com/user-attachments/assets/4e33b16e-819f-4697-97de-41d916c3cbc8
+
 ## Contact Info
 
 Telegram: @web3wiza
